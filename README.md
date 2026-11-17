@@ -37,4 +37,4 @@ Tenho experiência acadêmica com criação e prototipação de interfaces utili
 
 💼 LinkedIn:https://www.linkedin.com/in/juliana-gomes-45371b2b0/
 
-📧 Email: juliana.gtorres65@gmail.com
+📧 Email: juliana.gomest.cv@gmail.com
